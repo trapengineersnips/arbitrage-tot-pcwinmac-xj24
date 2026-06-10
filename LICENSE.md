@@ -1,4 +1,4 @@
-# 
+# Instantáneo arbitrage trading bot plugins para Mac OS | Mejor arbitrage trading bot plugins para PC Windows. Con oyentes de eventos y limitación de velocidad — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
